@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @juanzitellifns
+- 👀 I’m interested in Finalis
+- 🌱 I’m currently learning Finalis stuff
+- 💞️ I’m looking to collaborate on projects from Finalis
+- 📫 How to reach me: juan.zitelli@finalis.com
